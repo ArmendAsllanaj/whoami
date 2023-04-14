@@ -1,2 +1,2 @@
-# [Facebook] https://www.facebook.com/arrmeend
-# [IG] https://www.instagram.com/armendasllanaj
+# [Facebook] (https://www.facebook.com/arrmeend)
+# [IG] (https://www.instagram.com/armendasllanaj)
